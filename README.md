@@ -1,4 +1,7 @@
-## Hi there 👋
+## Oh, hello düd! 👀
+**I'm sans, a frenchie developer. That's it. I have no more things to add.**
+
+
 
 <!--
 **legrandsans/legrandsans** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
