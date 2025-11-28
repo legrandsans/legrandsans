@@ -1,5 +1,5 @@
-## Oh, hello düd! 👀
-**I'm sans, a frenchie developer. That's it. I have no more things to add.**
+sup?
+tbh i've got NO FUC**** IDEAS to what i should put here and NO GITHUB I WONT USE YOUR SHI*** TEMPLATE... anyways.
 
 
 
